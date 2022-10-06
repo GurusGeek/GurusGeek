@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @GurusGeek
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me 
+- Instagram @aabid_een
+- gmail aabideenbofficial@gmail.com
+
+
